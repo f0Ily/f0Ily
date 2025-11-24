@@ -1,16 +1,20 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://i.pinimg.com/736x/47/23/8c/47238c9581b89c8f641d37f7c9627926.jpg" width="180">
+</p>
 
-<!--
-**f0Ily/f0Ily** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+this is a spam account.
+my main 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+=
+</p>
+  
+<p align="center">
+  ✦ <a href="https://github.com/phantomedjoker">github</a> ✦
+</p>
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/36/2f/bd/362fbde3cfa911f009ba581fc4fb511f.jpg" width="250">
+</p>
