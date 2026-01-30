@@ -1,4 +1,4 @@
-                                                  :;(∩´﹏`∩);:
+                                               :;(∩´﹏`∩);:
 <p align="center">
 ${{\color{#C8C8B7}{\text{hii hello welcome to profile!!}}}}$
 <p align="center">
