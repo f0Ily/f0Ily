@@ -9,17 +9,18 @@ ${{\color{#BB9390}{\text{i am usually a gojo/yuki pony if you see me!}}}}$
 ${{\color{#B08086}{\text{and if you do, feel free to interact or cuddle! i find comfort from it.}}}}$
 <p align="center">
 ${{\color{#9E686E}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}}}$
-
-<details>
-
-  <summary>${\color{#F56649}dni!}$
-  any type of weird fandom, sexualizing minors + etc, and incest
- 
+  
 <p align="center">
-  <img src="https://i.postimg.cc/Qdf3Z5Gv/IMG-8928.png" width="500">
+  <img src="https://i.postimg.cc/Qdf3Z5Gv/IMG-8928.png" width="600">
 </p>
-
 <p align="center">
-<a href="https://github.com/phantomedjoker/">go hit that 껌 질겅 !</a>
+<details>
+  <summary>${{\color{#a56182}{\text{go hit that 껌 질겅 !}}}}$</summary>
+</p>
+  <p align="center">
+    <a href="https://github.com/phantomedjoker/">♡</a>
+  </p>
+</details>
+
 <p align="center">
 <img src="https://files.catbox.moe/gkfwox.png" width="65%">
