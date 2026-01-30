@@ -10,6 +10,11 @@ ${{\color{#B08086}{\text{and if you do, feel free to interact or cuddle! i find 
 <p align="center">
 ${{\color{#9E686E}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}}}$
 
+<details>
+
+  <summary>${\color{#F56649}dni!}$
+  any type of weird fandom, sexualizing minors + etc, and incest
+ 
 <p align="center">
   <img src="https://i.postimg.cc/Qdf3Z5Gv/IMG-8928.png" width="500">
 </p>
