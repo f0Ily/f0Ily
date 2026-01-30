@@ -15,4 +15,6 @@ ${{\color{#9E686E}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}
 </p>
 
 <p align="center">
+<a href="https://github.com/phantomedjoker/">go hit that 껌 질겅 !</a>
+<p align="center">
 <img src="https://files.catbox.moe/gkfwox.png" width="65%">
