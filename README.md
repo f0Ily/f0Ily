@@ -18,7 +18,7 @@ ${{\color{#9E686E}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}
   <summary>${{\color{#a56182}{\text{go hit that 껌 질겅 !}}}}$</summary>
 </p>
   <p align="center">
-    <a href="https://github.com/phantomedjoker/">♡</a>
+    i dont really have a dni
   </p>
 </details>
 
